@@ -1,0 +1,2 @@
+# tugas
+Informasi Barang
